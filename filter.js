@@ -16,6 +16,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [ACZD-035] Meat Urinal Desire Akane ((Kudou Akane)).mp4
 [ACZD-051] Training Record Of Livestock Nursery Teacher.mp4
 [ACZD-058] Omoroshi confinement breeding diary ((Maeno Nana)).mp4
+[ADN-041] Married Woman Home Helper - Submissive Sexual Service ((Ogawa Asami)) [[EngSub]].mp4
 [ADN-060] Husband, please forgive me (Subtitled).mp4
 [ADN-134] Fucked In Front Of Her Husband - A Classmate. Kana Morisawa ((Iioka Kanako)).mp4
 [ADN-136] Being Fucked In Front Of Her Husband ((Kurata Mao)) [EngSub].mp4
@@ -43,6 +44,8 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [ARBB-045] Shin Meat Urinal Collection Breaks Of Serious Human Out ... Concentrate SEX Premature Ejaculation Ma - Co And Gin Erection Penis Odious Room CASE026 ((Yuuri Oshikawa)).mp4
 [ARMF-016] Complete School Picture Book Volume 1 ((Rika Tsubaki; Ren Ichinose; Momo Hazuki; Mahina Maze; Yurika Kamijo)).mp4
 [ATID-278] True Stories - Human Breaking In Documentary ((Haruna Hana; Kano Hana; Natsume Eri)).mp4
+[ATID-403] To protect her family she has to work as a maid for a prickly rich man ((Ninomiya Hikari)) [[EngSub]].mp4
+[ATID-443] I, who suffer from sexlessness with my wife, became physical with my sister-in-law from that day on ((Fukada Eimi)) [[EngSub]].mp4
 [ATOM-269] Amateur only Oil stands professional wrestling game.ts
 [ATOM-322] I Took The Camera Only For The Face! Amateur Big Breasts Young Woman Only! Tell The Appreciation To My Dear Husband And Get The Prize Money!.mp4
 [ATOM-333] Hide Your Face And See The Whole Panties!Amateur Only!Skirt Drawstring Quiz Time Shock.ts
@@ -112,6 +115,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [DASD-504] Black Man Homestay NTR His Underwear Can’t Contain His Massive Bulge Nao Shinguji ((Jinguuji Nao)) [[EngSub]].mp4
 [DASD-576] A Female Anchor Gets Hypnotized And Brainwashed, Turning Her Into A Freaky Slut Against Her Wishes - Shoko Akiyama ((Akiyama Shouko)).mp4
 [DASD-591] New Iron Crimson Iron Throne ((Arimura Nozomi)).mp4
+[DASD-786] Ever Since We Let My Colleague Stay At Our House, My Wife Has Loosened Up Her Stance. A Married Woman Commits Black Dick NTR ((Kimijima Mio)) [[EngSub]].mp4
 [DASD-791] Hot Teacher Will Sweetly Show You Anything You Ask For ((Shinoda Yuu)) [EngSub].mp4
 [DASD-956] If I Didn T Make A Mistake At That Time My Wife Wasn T Cuckold Shuri Miya ((Mitani Akari)).mp4
 [DBER-114] Cruel Climax That Exceeds All Limits Bringing Girls Down To Hell With An Electric Drill ((Miku Abeno; Ai Minano; Rena Aoi; Hana Haruna; Kaoru Natsuki (Tsubaki Kato); Miki Sunohara; Hitomi Katase; Hikaru Konno; Nao Mizuki; Yuzu Kitagawa)).mp4
@@ -229,6 +233,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [GVG-188] Sexy Student Council Brat KAORI ((Kaori)).mp4
 [GVG-194] Son-in-law aims at her mother-in-law's obscene big tits - Nozomi Mikimoto ((Yamase Miki)) [[EngSub]].mp4
 [GVG-259] Married Woman Who Loves Black Guy's Very Thick Penis ((Shinoda Ayumi)) [[EngSub]].mp4
+[GVG-286] Mother Son rape - is Jealous of Her Son's Girlfriend ((Sasaki Aki)) [[EngSub]].mp4
 [GVG-347] Celebrity Public Torture ((Yui Shinkawa)).ts
 [GVG-453] 3 Circumcised Students Get An Adulterous Sexual Experience Yuri Oshikawa.mp4
 [GVG-476] Forbidden Care ((Yuuri Oshikawa)).mp4
@@ -289,6 +294,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [HDKA-249] Naked Housekeeper Naked Housekeeper Introduction Office Rino Yuki ((Yuiki Rino)).mp4
 [HDKA-251] Naked Housekeeper Naked Housekeeper Introduction Office Asakura Here ((Asakura Kokona)).mp4
 [HGOT-052] Her Appearance Of Stretching Is Too Erotic And It Is One Shot From The Morning ((Misaki Azusa; Kiritani Nao; Kawana Ai)).mp4
+[HMN-033] Married woman who goes to a shabby house for her seedless husband and enjoys thick seeding sex with a single guy who has been accumulating sperm for 30 days JULIA ((Julia)) [[EngSub]].mp4
 [HNDS-060] Retirement Cum Inside It Will Be Youthful At The End Everyone Special ((Ootsuki Hibiki; Kanae Ruka; Miyazaki Aya; Hazuki Nanase)).mp4
 [HOMA-038] Married Couple Collapsing NTR 'Bad Girls And Lusty' Bride And Former Cano ((Shinoda Yuu; Kashii Ria)) [EngSub].mp4
 [HRRB-041] Face Entertainer! Body Is Chubby! Doeroi Amateur AV Appearance! ((Moe Asamiya)) {JavFull}.mp4
@@ -314,6 +320,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [IPX-193] Young Lady's Descent To Slavery Shame Breaking In, Kidnapping Continuous Violation Confinement Hell ((Aizawa Minami; Mochida Akane; Toda Yuria)) [[EngSub]].mp4
 [IPX-516] My Awakened to Masochism girlfriend - Trained by her Fiancee’s M-Sex family ((Sakura Momo)) [[EngSub]].mp4
 [IPX-570] A Beautiful Married Woman Became A Nude Model For The Sake Of Her Beloved Husband Shameful Pussy Juices Dripping With Shame ((Airi Kijima)).mp4
+[IPX-641] I Hope My Husband Never Finds Out - Today I'm Being Ravished By My Father-In-Law Again. He Keeps Making Me Cum.. ((Kaede Karen)) [[EngSub]].mp4
 [IPX-750] A Long Time Ago, My Classmate Bullied Me In A Very Cruel Way, And Now, I'm Getting Revenge By Fucking His Beloved Daughter ((Aizawa Minami)).mp4
 [IPX-778] Submissive Brainwashing Therapy For A Popular Female Anchor To Make Her Totally Docile - Female Anchor Finally Giving Into Indignity And Pleasure ((Momonogi Kana)).mp4
 [IPX-784] My Father-in-law Hates Me To Death, But His Favorite Food Is Me As A S--------l… ((Aizawa Minami)) [EngSub].mp4
@@ -324,6 +331,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [IPZ-508] Forbidden To Attack The Immorality Of Cage Happy Two Couples Captivity Forced Swapping ((Aida Nana; Minami Nami)) [EngSub].mp4
 [IPZ-658] Tsubasa Amami Of Wonderful Sister Appalling Tech Ejaculation Administration.mp4
 [IPZ-739] Torture Has Been Amami Wings Crest ℃ Of Supervision From The Person Aipoke Was Cut A Deal Madness Of Revenge Documentary ((Amami Tsubasa)) [Uncensored].mp4
+[IQQQ-024] Mio Kimishima, a married teacher who cums 10 times in a class while not making a noise ((Kimijima Mio)) [[EngSub]].mp4
 [IRO-45] Nipple Messing Around Train-A Married Woman Who Relentlessly Picks Up An Erection Chibi And Falls Alive ((Mikawa Yukari)).mp4
 [IRO-47] Married Woman Slut Train Touched Fifty Mother ((Hori Miyako)).mp4
 [JBD-191] Bondage Booty Play 2 ((Hana Haruna)) {JavFull}.mp4
@@ -343,6 +351,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [JUE-005] Global Media 20th Anniversary Special Project Showa Summer Wartime Women Chisato Shoda ((Shouda Chisato; Yokoyama Natsuki; Kawakami Yuu; Tsukada Shiori)).mp4
 [JUFD-232] Terashima Shiho cleaning staff can not refuse Nikkan bra ((Terashima Shiho)) {JavFull}.mp4
 [JUFD-590] An S_M S__e Pregnancy Fetish Auction - The Hemp Ropes Of Ecstasy Dig Into The Hot Flesh Of A Secretary With Colossal Tits ((Kaho Shibuya)) {JavDoe}.mp4
+[JUFD-657] Lewd talk esthetic salon for your pleasure ((Haruna Hana)) [[EngSub]].mp4
 [JUFD-783] I Intended To Seduce The Virgin Brother... It Is A Reversal Of The Truth! Unprotected Breast-fed Older Sister ((Haruna Hana)).mp4
 [JUFD-876] Kissing Nipple Torture Lesbians Lady Teacher's Obscene Lesbian Nipple Training ((Yuri Oshikawa; Yuuna Ishikawa)).mp4
 [JUFD-882] Friend is Plump Fetus Breasts Runaway To Mothers Runaway Shota Female Hole Slave Cumshot Training Work Plan ((Haruna Hana)).mp4
@@ -390,6 +399,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [LUKE-007] This Elder Sister Type Slut Will Lure You To Temptation By Holding You Tight And Hitting You With Dirty Talk Azusa Misaki.mp4
 [LULU-104] While My Father Was On A Business Trip My Mother-in-law With Big Breasts Men Repeatedly Used Me As A Practice Table For Nuki Until Kintama Was Empty ((Oshikawa Yuuri)).mp4
 [LULU-118] A Plump Female College Student Who Grew Up Around The Time Of Eating Was Made To Play With Her Nipples Persistently Until She Became A Sensitive Pleasure Constitution ((Miyajima Nodoka)).mp4
+[MADM-091] Aphrodisiac lingerie that makes a quiet married woman want to be penetrated to the depths of her vagina, Yuika Takashima ((Aida Asuka)) [[EngSub]].mp4
 [MANE-046] Masturbation Support By Abuse It's Just How Perverted You Can Be_1.mp4
 [MANE-046] Masturbation Support By Abuse It's Just How Perverted You Can Be ((Nagisa Mitsuki; Kashiwagi Kurumi; Usui Saryuu; Mukai Ai; Rinne Touka; Wakatsuki Miina; Aoi Yurika; Kohinata Mai; Hazuki Reira; Mochizuki Ayaka)).mp4
 [MARA-062] S Big Breasts Theater Kcup 108cm ((Haruna Hana)).mp4
@@ -410,9 +420,11 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [MEYD-182] Darling, While You Were Gone... My S&M Master Was Breaking Me In ((Meguri)).mp4
 [MEYD-193] We Found One In Ginza! A Legendary High Class Creampie Baths ((Meguri)).mp4
 [MEYD-236] Keep Cumming Inside Me Until I Get Pregnant.. ((Meguri)).mp4
+[MEYD-356] I Went To A Rubber Mat Club That Didn't Allow Real Fucking, And Out Came The Beautiful And Bitchy Married Woman From Next Door Now That I Knew Her Secret ((Kimijima Mio)) [[EngSub]].mp4
 [MEYD-371] A Picture That A Wife Who Can Not Drink Even A Single Drop Can Not Refuse The Boss's Refusal To Get Intoxicated And Sexed ((Azusa Ichinose)) [EngSub].mp4
 [MEYD-559] I Love Fucking My Stepmom, But The Tables Are Turned When My Wife Decides To Have Creampie Sex With My Dad While She’s Ovulating ((Kayama Natsuko; Meguri)) [[EngSub]].mp4
 [MEYD-637] Today Cum Inside Me Till I'm Pregnant.. ((Kazama Yumi)) [[EngSub]].mp4
+[MEYD-709] If You Can't Pay The Rent, Why Don't You pay with your body Lol - Yu Shinoda ((Shinoda Yuu)) [[EngSub]].mp4
 [MEYD-750] Shop Manager Is Obsessed With Tits And Hires A Married Woman Part-time Worker For Nipple Teasing Harassment NTR Cheating ((Satsuki Mei)).mp4
 [MGDN-108] Tipsy Mature Woman And Unlimited Spout Drinking Party Want Unlimited! 240 Minute Special Part 2.mp4
 [MGQ-007] A Girl Who Has To Be Tortured ((Minami Riona)).mp4
@@ -613,6 +625,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [PRED-111] Humiliated Parents Association Rich Father's Sweat, Saliva, Sperm-covered Confectionary Gangbang Yamanishi ((Yamagishi Aika)).mp4
 [PRED-389] I’ll Just Take A Nude Photo To Remember… The Cameraman Got My Heart Going And My Crotch Wet And I Got A Creampie ((Kijima Airi)).mp4
 [PRTD-007] Bondage Drug Agent - 2 Hours To Rescue, I Will Never Give Up ((Mio Kimishima)).mp4
+[PRTD-029] An International Investigator Gets Pumped To Orgasmic Ecstasy With Black Magnum Cocks In A Creampie Hellhole ((Tsujii Honoka)) [[EngSub]].mp4
 [PSI-427] Bitch Pleasure Outdoor Kimono Enema 08 ((Niio Kiriko; Kiriko Nio)).mp4
 [PZD-035] Milk Sucking Yuri Mariana ((Yuzuki Marina)).mp4
 [RAPD-003] Outdoors Psychopathic Strength In The Remote Mountains Married Women Who Were Attacked By Demons And Cried Mercilessly Yuki Makimura ((Usui Ren; Mizukawa Yuri; Makimura Yuzuki)).mp4
@@ -980,6 +993,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [SRMC-046] Hypno-confinement room brain kime-sex me! ((Nagai Mihina)).mp4
 [SS-013] This Threesome With A K Cup Married Woman Squirting Breast Milk Is The Best Sex I Have Ever Had ((Waka Nemoto)).mp4
 [SSIS-240] A New Weather Forecaster Who Is An Active National University Student Has Gone Crazy ((Shirasaka Mian)).mp4
+[SSIS-386] She Had Nothing But Contempt For Her Middle-Aged Boss But To Her Utter Shock She Was Booked Into The Same Hotel Room With Him During Their Business Trip.. ((Hayano Uta)) [[EngSub]].mp4
 [SSND-003] SSND-03 Super Maternal Big Breasts Lady  - Part B ((Haruna Hana)).mp4
 [SSND-003] Super Maternal Big Breasts Lady  - Part A ((Haruna Hana)).mp4
 [SSNI-081] Mini Skirt Idol Tour Refre Extreme Invisible Full Course Hashimoto Yes ((Arina Hashimoto)) [EngSub].mp4
@@ -1110,6 +1124,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [URE-056] Maki Tomoda and Urekomi! Based On Etsuzan Jakusui’s Like A Moth To The Flame ((Tomoda Maki)) [[EngSub]].mp4
 [URE-061] Hypnotic Instructions 4 Instructions For Getting Girls Pregnant - by Riku Aijo From The Hypnotic Instructions Series ((Houjou Maki; Inaba Ruka)) [[EngSub]].mp4
 [URE-071] Female Teacher Reiko - An Aphrodisiacal Breaking In - Make The Stern And Beautiful Lady Indulge in Excessive Pleasure ((Shiraishi Marina)) [[EngSub]].mp4
+[URE-073] The day I fucked my Son - Exclusive - Mother-in-law's Pride ((Kinoshita Ririko)) [[EngSub]].mp4
 [URMC-005] My Older Sister Colossal Tits Ar So Nasty They Knocked Me Out In An Instant ((Yuri Oshikawa)).mp4
 [USBA-003] Aphrodisiac BDSM Gangbang - Bukkake - Pleasure Hell Prisoner ((Nishita Karina)).mp4
 [VAGU-241] Wife Brainwashing NTR. Made Irritating Neighbor Into Sex Plaything With Brainwashing. Made Her Lust After Strange Man's Cock In Front of Husband ((Miura Eriko)).mp4
