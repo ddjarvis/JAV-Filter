@@ -11,6 +11,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [ABP-755] This Female Manager Is Our Cum Bucket Pet! (Subtitled).mp4
 [ABP-910] Super! See-through Lewd School CLASS 06 See-through Fetish Tono SEX That Beautiful Nude Is Transparent! Minase Nagase ((Nagase Minamo)).mp4
 [ABS-032] Is Covered While Rina Kato Erotic ((Katou Rina)) [EngSub].mp4
+[ABS-093] Order In, Complete Naked Housekeeper. ((Asuka Kirara)).mp4
 [ABS-203] Shunka Ayami Cowgirl Addiction, I Love Her Too Much  ((Shunka Ayami)) {R18}.mp4
 [ABW-269] Super! Transparent Dirty School CLASS 16 - Beautiful Naked Body Transparent Fetish Rich SEX ((Wakui Mito)).mp4
 [ACZD-035] Meat Urinal Desire Akane ((Kudou Akane)).mp4
@@ -44,6 +45,8 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [ARBB-045] Shin Meat Urinal Collection Breaks Of Serious Human Out ... Concentrate SEX Premature Ejaculation Ma - Co And Gin Erection Penis Odious Room CASE026 ((Yuuri Oshikawa)).mp4
 [ARMF-016] Complete School Picture Book Volume 1 ((Rika Tsubaki; Ren Ichinose; Momo Hazuki; Mahina Maze; Yurika Kamijo)).mp4
 [ATID-278] True Stories - Human Breaking In Documentary ((Haruna Hana; Kano Hana; Natsume Eri)).mp4
+[ATID-370] The Stage Of Darkness An Idol G-------g Show ((Nagase Yui)).mp4
+[ATID-387] My C---dhood Friend Who Always Saved Me From Bullies Is Getting G---------d Right In Front Of My Eyes... ((Yuuki Nono)).mp4
 [ATID-403] To protect her family she has to work as a maid for a prickly rich man ((Ninomiya Hikari)) [[EngSub]].mp4
 [ATID-443] I, who suffer from sexlessness with my wife, became physical with my sister-in-law from that day on ((Fukada Eimi)) [[EngSub]].mp4
 [ATOM-269] Amateur only Oil stands professional wrestling game.ts
@@ -76,9 +79,14 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [CEMD-004] I Raised A Sex Doll Who Will Do Whatever I Want Vol 2 ((Yuri Sakura)).mp4
 [CEMD-008] All Day Partying Documentary WithHana Haruna ((Hana Haruna)).mp4
 [CEMD-054] I Tried Breeding A Sexual Processing Doll That I Wanted Vol 5 ((Hatano Yui)).mp4
+[CEMD-104] I Bred A Sex Doll That Does What I Want Vol.7 ((Shirato Hana)).mp4
 [CEMD-106] Slut Taxi Driver 5 Big Breasts Slut Driver Attacks A Man And Gets Wet Mako ((Sena Hikari)).mp4
+[CEMD-132] I Tried Raising Her To Be A Doll For Sexual Relief That Would Do As I Want. Vol. 8. Meru Ito ((Itou Meru)).mp4
+[CEMD-176] I've raised a sex doll that does what I want vol.11 Ioka Kanako ((Iioka Kanako)).mp4
+[CEMD-185] I Will Hand Over My Trained Sex Processing Doll ((Sumeragi Yuzu)).mp4
 [CEMD-191] Humiliation, Rape, Tipping and Dating in Downtown ((Satsuki Mei)).mp4
 [CEMD-208] We went on a tongue kissing date downtown while wearing a tobikko! Karin Mizuki ((Shirushi Kikarin)).mp4
+[CEMD-229] Breeding a sex doll that does what I want vol.12 ((Yokomiya Nanami)).mp4
 [CESD-152] The Loving Sex Politician 3 Yuki Tanihara.mp4
 [CESD-480] The Stained Bride ((Yuri Oshikawa)).mp4
 [CESD-531] The Real Sex Doll I Loved 6 ((Hana Haruna)) {Reddit}.mp4
@@ -129,6 +137,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [DDK-147] Single In The Family. Good No Matter What The Resistance Processing Booty Furniture ((Saitou Miyu)).mp4
 [DDK-207] You Discovered This Naked Barely Legal Babe In The Woods, And Now You Can No Longer Suppress Your Lust A Missing Barely Legal Babe Gets F_cked And Overwhelmingly Impregnated ((Kudou Rara)).mp4
 [DDK-212] Female Livestock PLANT Female Pig Hut Ichika Mogami ((Mogami Ichihana)).mp4
+[DDK-214] Garbage Dumping Ground - Confinement Garbage Scrap Doll ((Yura Kana)).mp4
 [DDKM-013] Meaty Bondage Holstein Babes Huge Tits Boneless Fuckers ((Yua Asakura)).mp4
 [DDOB-053] Itou Sara I am The Human Toilet Who Makes Mommy Squirt Sara Ito.mp4
 [DDOB-070] Big Breast Seeding Meat Dharma Mako Oda.mp4
@@ -188,6 +197,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [EBOD-842] Closeups On This Big-Breasted Housekeeper S Tits Daily Nipple Play And Cum On Her Breasts ((Kasumi Tsukino)).mp4
 [EDRG-016] World Of Uterine Recruitment System Has Been Enforced For The Nation To Netora A Married Woman - The Declining Birthrate ((Sasaki Aki)).mp4
 [EKDV-479] Glasses x Swimsuit x Constriction Boyne ((Yuuri Oshikawa)).mp4
+[EKDV-659] Breaking In An Innocent New Maid... She's Too Obedient To Resist - She Starts Enjoying It And Going After Men All On Her Own, The Perfect Fuck Doll Ran Tsukishiro ((Himekawa Yuuna)).mp4
 [EMAZ-281] My Bristly-Haired, Big-Tittied 50-Year-Old Step-Mother ((Yoshie Mizuno)) {R18x}.mp4
 [EVIS-232] Lesbian Licking Extreme Axillary And Nipple Too Lesbian.mp4
 [EVIS-376] Nipple Licking Document Lesbian ((Saeki Yumika; Toyonaka Arisu; Shiomi Akari; Kagami Sara; Koharu; Nagano Tsukasa; Seina Arisa; Sasaki Sawa)).mp4
@@ -233,6 +243,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [GTJ-089] Dogma Skewered ((Aya Shiomi)).mp4
 [GTJ-091] Full Body Bondage Total Control Aya Shiomi ((Shiomi Akari)).mp4
 [GTJ-095] Impalement Penalty Ameli Hoshi ((Hoshi Ameri)).mp4
+[GTJ-097] The Innocent Sex Doll ((Maeno Nana)).mp4
 [GUN-676] As A Drinking ((Aiko Mitsuki)).mp4
 [GUN-687] An Orgasmic Cross Dressing Big Dick With A 20 Cm Long Cock ((Aimi Sasaki)).ts
 [GUN-856] Pulling the Nose Wide Open With the Hooks. ((Maeno Nana)).mp4
@@ -246,6 +257,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [GVG-347] Celebrity Public Torture ((Yui Shinkawa)).ts
 [GVG-453] 3 Circumcised Students Get An Adulterous Sexual Experience Yuri Oshikawa.mp4
 [GVG-476] Forbidden Care ((Yuuri Oshikawa)).mp4
+[GVG-565] Our Sex Processing Angel Obedient Beauty Girl Cum Shot Meat Doll ((Ichinose Momo)).mp4
 [GVG-652] Soft Body Deck Buttock Exercise ((Ayumi Kimino; Mio Morishita)).mp4
 [GVG-737] Anal Ballerina 4 ((Nanase Izumi)).mp4
 [GVG-778] Anal Ballerina 5 ((Hamasaki Naomi; Yuki Tamaki)).ts
@@ -302,12 +314,14 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [HDKA-247] Naked Housewife 30 Living In Nishitokyo ((Shiraishi Miki)).mp4
 [HDKA-249] Naked Housekeeper Naked Housekeeper Introduction Office Rino Yuki ((Yuiki Rino)).mp4
 [HDKA-251] Naked Housekeeper Naked Housekeeper Introduction Office Asakura Here ((Asakura Kokona)).mp4
+[HELL-101] A Young Ass Hole Is Destroyed A Tiny Titted Barely Legal Is Given An Anal Gang Bang Meet The Little Barely Legal Mei JC 1 ((Aoi Ichigo)).mp4
 [HGOT-052] Her Appearance Of Stretching Is Too Erotic And It Is One Shot From The Morning ((Misaki Azusa; Kiritani Nao; Kawana Ai)).mp4
 [HMN-033] Married woman who goes to a shabby house for her seedless husband and enjoys thick seeding sex with a single guy who has been accumulating sperm for 30 days JULIA ((Julia)) [[EngSub]].mp4
 [HNDS-060] Retirement Cum Inside It Will Be Youthful At The End Everyone Special ((Ootsuki Hibiki; Kanae Ruka; Miyazaki Aya; Hazuki Nanase)).mp4
 [HOMA-038] Married Couple Collapsing NTR 'Bad Girls And Lusty' Bride And Former Cano ((Shinoda Yuu; Kashii Ria)) [EngSub].mp4
 [HRRB-041] Face Entertainer! Body Is Chubby! Doeroi Amateur AV Appearance! ((Moe Asamiya)) {JavFull}.mp4
 [HTMS-058] Sexual Torture - Beautiful Female Body - Other Man's Wife's Pussy Embraced by Husband and Wife Every Night ((Kawakami Yuu; Miyazaki Yuma; Mutou Tsugumi; Ryuu)).mp4
+[HTMS-080] Henry Tsukamoto Female Rape Captivity ((Fujie Yoshie; Kimura Narumi; Miori Mai; Tachibana Sakura; Uchimura Rina)).mp4
 [HUNBL-055] A Woman Who Has No Place To Go Is Treated Like A Toy By Men And She Commits Crazy Over And Over Again From Morning Till Night.mp4
 [HUNBL-072] When I Got A Job At The Only Adult Goods Maker That Was Hired ((Misaki Azusa; Minami Saya; Asahi Shizuku)).mp4
 [HUNBL-087] For One Week I Was Left In The Care Of My Step-Uncle Who Sexually Controls His Stepdaughter ((Ichika Nenne; Kudou Rara)).mp4
@@ -327,6 +341,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [ID-24061] Beautiful Girls Get Gang Raped And Creampied By Orcs Until They Get Pregnant 2 ((Aizawa Ruru; Ayana Rina; Miyazawa Yukari; Mukai Ai)).mp4
 [IENF-180] You Can Clearly See The Number Of Anal Wrinkles No Mosaic Continuous Cum Anal Show Masturbation 6 ((Kira Rin; Mihara Honoka; Asahina Karen; Kawana Misuzu; Maina Miku; Minami Kozue; Ayase Himari; Kamino Hina; Minagawa Rui; Fujii Leila)).mp4
 [IENF-226] Amateur College Student Became a Nude Drawing Model for a High Part-time Job! ((Minami Nosora; Tenma Yui; Tennen Mizuki)).mp4
+[INCT-019] Papa's A Pervert! And He Has A Sex Doll To Satisfy His Sexual Urges Yukari 18 Years Old ((Miyazawa Yukari)).mp4
 [IPX-193] Young Lady's Descent To Slavery Shame Breaking In, Kidnapping Continuous Violation Confinement Hell ((Aizawa Minami; Mochida Akane; Toda Yuria)) [[EngSub]].mp4
 [IPX-516] My Awakened to Masochism girlfriend - Trained by her Fiancee’s M-Sex family ((Sakura Momo)) [[EngSub]].mp4
 [IPX-570] A Beautiful Married Woman Became A Nude Model For The Sake Of Her Beloved Husband Shameful Pussy Juices Dripping With Shame ((Airi Kijima)).mp4
@@ -342,6 +357,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [IPZ-573] Fucked In Front Of Husband ((Amami Tsubasa)) [[EngSub]].mp4
 [IPZ-658] Tsubasa Amami Of Wonderful Sister Appalling Tech Ejaculation Administration.mp4
 [IPZ-739] Torture Has Been Amami Wings Crest ℃ Of Supervision From The Person Aipoke Was Cut A Deal Madness Of Revenge Documentary ((Amami Tsubasa)) [Uncensored].mp4
+[IPZ-971] Make Time Stop! Is Frozen Like A Doll, So I Can Whatever The Fuck I Want With Her ((Momonogi Kana)).mp4
 [IQQQ-024] Mio Kimishima, a married teacher who cums 10 times in a class while not making a noise ((Kimijima Mio)) [[EngSub]].mp4
 [IRO-45] Nipple Messing Around Train-A Married Woman Who Relentlessly Picks Up An Erection Chibi And Falls Alive ((Mikawa Yukari)).mp4
 [IRO-47] Married Woman Slut Train Touched Fifty Mother ((Hori Miyako)).mp4
@@ -398,6 +414,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [JUQ-035] Nude model NTR - Shocking flirtation footage of a wife drowned in shame with her boss ((Shiraishi Marina)).mp4
 [JUQ-069] I, a bullied girl who was NTR'd by a classmate who bullied my mother ((Sada Mariko)).mp4
 [JUTN-020] This Idol Earns Some Extra Spending Money By Doing 1-On-1 Photo Shoots And More With Her Fans - ((Rena Aoi)).mp4
+[JUX-338] The Top Quality Married Woman Love doll That I Loved, No. 001 Mako ((Oda Mako)).mp4
 [JUX-699] Mother Netora Are Tied - The Son Of A Friend Bondage Nyotaimori ((Yoshie Mizuno)).mp4
 [JUY-613] Madonna Epic 15th Year Anniversary #2!! [Viewer Warning] The Most Insane Cheating Story Of Your Life ((Mizusaki Karen)) [[EngSub]].mp4
 [JUY-639] Black Boxing Gym Cuckold Sex, I Found Out That She Was Doing Some Outrageous Shit With The Black Trainer (A Former Boxer).. ((Kimijima Mio)) [[EngSub]].mp4
@@ -406,13 +423,17 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [KAM-088] Amateur NTR Post I Took A Voyeur Of The Place Where I Fell Asleep On My Brother And Posted It I Was Excited By My Sister-in-law's Abundant Body ((Haruna Hana)).mp4
 [KATU-094] Nipple Bottle Dosukebe Caregiver Glamorous Slut With Outstanding Sex Appeal Pheromone ((Oshikawa Yuuri)).mp4
 [KAWD-912] Medical Checkup Sexual Harassment aimed at beautiful girls ((Suzuki Koharu)).mp4
+[KAWD-963] A Pop Idol Gets Gang Raped Again Right After Being Raped ((Sakura Moko)).mp4
 [KTKC-041] K-POP Dancer Dancing While Shaking The Super Cow is Super Busty With Brun Burun Shock AV Debut Fujii Sayaka 19 Years Old ((Masshiro Koko)).ts
 [KTKL-108] Hobetsu NN2 With Shooting Marin ((Kaise Akari)).mp4
 [KTRA-394] A Perverted Family Who Is Too Close To My Sister 01 ((Yokomiya Nanami)).mp4
 [KTRA-426E] Pervert Family Who Are Too Close to Their Younger Sister 05 - Azusa Natsuai ((Otoba Karen)).mp4
 [KTRA-426] Pervert Family Who Are Too Close to Their Younger Sister 05 - Azusa Natsuai ((Otoba Karen)).mp4
+[KTRA-442] Bondage Family - Loving Daughter is a Trained Sex Doll for Creampie Only ((Kisaki Nana)).mp4
 [KUM-003] Prestige The Shaving Of A Female Teacher Who Let Their Students Shave Her Bushes And Expose Their Twats ((Mio Kimijima; Ruka Inaba; Kanako Ioka; Mio Hinata)).mp4
 [KUM-006] Married Woman Confinement Breakign In - Noai Kawanishi ((Yui Hatano; Nozomi Haneda; Rei Takatsuki; Noa Kasai)).mp4
+[LOVE-127] The Small Girl Is My Dirty Sex Doll 3 ((Haruki Karen)).mp4
+[LOVE-194] Kita Went To The Torture Exposed Shame Travel Out Of My Sex Doll And In Private ((Makimura Hina)).mp4
 [LUKE-007] This Elder Sister Type Slut Will Lure You To Temptation By Holding You Tight And Hitting You With Dirty Talk Azusa Misaki.mp4
 [LULU-104] While My Father Was On A Business Trip My Mother-in-law With Big Breasts Men Repeatedly Used Me As A Practice Table For Nuki Until Kintama Was Empty ((Oshikawa Yuuri)).mp4
 [LULU-118] A Plump Female College Student Who Grew Up Around The Time Of Eating Was Made To Play With Her Nipples Persistently Until She Became A Sensitive Pleasure Constitution ((Miyajima Nodoka)).mp4
@@ -446,7 +467,9 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [MGDN-108] Tipsy Mature Woman And Unlimited Spout Drinking Party Want Unlimited! 240 Minute Special Part 2.mp4
 [MGQ-007] A Girl Who Has To Be Tortured ((Minami Riona)).mp4
 [MIAA-021] I Will Destroy Your Nipples Today As They Are Today! ! Pain Agony With A Slutty Slut!Stop!Always Gyun Fuku Shinoda Yu Ren Mi Clare ((Shinoda Yuu; Hasumi Kurea)).mp4
+[MIAA-131] For The Sake Of My Beloved Husband, I Decided To Pretend To Be A Real Sex Doll And Get Fucked By Another Man ((Shiina Sora)).mp4
 [MIAA-222] As A Result Of Painting A Cheeky Gal With A Medicine That Makes Me Dying As Much As She Dies, She Pleaded With Her And Screamed At The Piston ((Imai Kaho)) [EngSub].mp4
+[MIAA-264] I Saw My Helpful C---dhood Friend Getting Fucked By Bullies And My Dick Got Hard - Ryo Harusaki ((Harusaki Ryou)).mp4
 [MIAA-416] My World Was Changed At A Breast Milk Massage Parlor For Men ((Hinami Narusawa)).mp4
 [MIAA-465] I was made to ejaculate 10 times by my nieces in a men's bath on a hot spring trip ((Kudou Rara; Matsumoto Ichika)) [[EngSub]].mp4
 [MIAA-566] Nipple Bing Big Breasts Dirty Little Apartment Wife S Neighbor Man Eating Fishing Seeding Creampie Copulation Yuri Oshikawa ((Oshikawa Yuuri)).mp4
@@ -470,6 +493,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [MIDE-184] Ultra Breast Shoplifting Investigator ((Hitomi Tanaka)) [EngSub].mp4
 [MIDE-241] JULIA Gagged Les flops Torture Special Edition ((Julia)).mp4
 [MIDE-517] This Devoted Big Tits Wife Is Working As A Nude Model To Support Her Loser Husband JULIA ((Julia)).mp4
+[MIDE-582] Female Teacher Gang Bang Violation Shoko Takahashi ((Takahashi Shouko)).mp4
 [MIDE-616] Anytime, Anywhere Quick Fuck Maid - Nao Yuki ((Hirate Mana)) [[EngSub]].mp4
 [MIDE-646] I Am Committed To My Husband's Boss Today Too ((Hatsukawa Minami)) [EngSub].mp4
 [MIDE-919] I, who was forced to stay in a shared room with a group of rich old men at a hot spring on a business trip, and was creampied until morning ((Jinguuji Nao)) [[EngSub]].mp4
@@ -597,6 +621,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [NSFS-039] Cuckold House 2 Wife Made Into A Sex Doll ((Saeki Yumika)).mp4
 [NSFS-043] My Wife Became A Nude Model In Front Of My Boss. Nozomi Reki ((Sasaki Nozomi)).mp4
 [NSFS-058] Cuckold Power Best-Wife Naked At Work For Her Husband ((Hamasaki Mao; Takanashi Momoe)).mp4
+[NSFS-072] A Wife In Debt... A Wife Is Used As A Fuck Doll. 2 Wife Takes Dozens Of Creampie Loads Right In Front Of Her Husband. Haruka Nogi ((Hinata Nozomi)).mp4
 [NSFS-081] I’m Proud Of My Wife So I’m Putting Her Out For Rent. A Young Wife Love Doll 2 ((Kitano Mina)) [[EngSub]].mp4
 [NSFS-081] I’m Proud Of My Wife So I’m Putting Her Out For Rent. A Young Wife Love Doll 2 ((Kitano Mina)).mp4
 [NSPS-208] I Twist One's Arm In Dick Takeuchi Gauze Rina Cheeky Apartment Wife ((Murakami Risa)) [EngSub].mp4
@@ -624,6 +649,8 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [OKSN-254] Mom's My Very Own Bukkake Doll ((Tanihara Yuki; Yuki Tanihara)).mp4
 [OKSN-332] New Discovery Gallons Of Breast Milk Gorgeous H-Cup Colossal Tits Big Nipples Dripping Breast Milk Are Proof Of Her Pleasure.mp4
 [OMHD-002] Group Pranks Online #The Worst 5 Hackers In History Prey On A Slut With Giant Balloon Titties ((Misaki Azusa)).mp4
+[OMHD-005] Cursed Sex Doll Is Possessed With A Devilish Lust ((Matsumoto Ichika))_1.mp4
+[OMHD-005] Cursed Sex Doll Is Possessed With A Devilish Lust ((Matsumoto Ichika)).mp4
 [OMHD-015] Maximum Upper Limit Fakecest Video. All My Life I've Been Locked Into A Box To Be A Sex Toy, And Only My Step-dad Knows. Rara Kudo ((Kudou Rara)).mp4
 [ONSG-048] Big Tits Delivery Health ((Shiraishi Miki)).mp4
 [OPKT-029] Forbidden Pregnancy OK Creampie Part-time Job Meg.mp4
@@ -904,6 +931,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [SDDE-399] Big Nurses Gently Sex Processing Ridge Shota Sex Ward ((Chigusa Hara)) [EngSub].mp4
 [SDDE-429] Walls! Tables! Chairs! Glory Holes Everywhere In Their Childhood Home!! Happy New Year! They Say While Sucking Cock... Family Edition ((Akiyama Aya; Kasugano Yui; Kondou Ikumi; Konishi Mika; Oosawa Tsukushi; Ootsuki Hibiki)) [[EngSub]].mp4
 [SDDE-447] Go Mom And Dad! Lotion-Slick Friendly Family Fucking Competition ((Saeki Kanon; Oda Reiko; Hakutou Kokona; Usui Satomi; Aihara Tsubasa; Watanabe Sora; Aino Momona)) [EngSub].mp4
+[SDDE-464] Weekly Girlfriend The Premiere Issue The Combinations Are Unlimited! Every Week I Can Use The Parts To Build My Very Own Phantasmagoric Sex Toys ((Hayama Miku)).mp4
 [SDDE-467] Uniform, Underwear, Naked Service Take A Flight On Pussy Airlines 7 Our Cabin Attendants Will Provide The Ultimate In In-Flight Service, With Up Close And Personal Cowgirl Action, And Luxurious.mp4
 [SDDE-508] Students! Bring your mothers to health class tomorrow instead of human models! Kimika Ichijo ((Ichijou Kimika)).mp4
 [SDDE-537] Daily Life Mixed With Sex A Beautiful Housewife Who Lives In Minato Ward Is Always Fucking A Married Woman Cooking Class ((Kanae Renon; Miyashita Kana; Ootsuki Hibiki; Sakura Nene)) [[EngSub]].mp4
@@ -958,6 +986,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [SGSR-295] Real Monitoring Experiment A Couple Was Thrown Into The AV Shooting Site That Everyone Wanted To Go Transcendental.mp4
 [SHE-223] Amateur And Rich Copulation 30 People Four Hours Tits Women Nampa Looks With Modest Cleanliness.mp4
 [SHKD-607] Uncensored Panick 4 Countdown To Lust Humilation ((Misaki Honda; Kaede Izumi)).mp4
+[SHKD-747] Yankee Girls School Student Retaliation Rape Punishment Tear.mp4
 [SHKD-985] Newly married teacher Tamiya is forced to be a sex toy for the most problematic boy in school.. ((Sannomiya Tsubaki)) [[EngSub]].mp4
 [SITW-022] A Serious Stripping Game For Money! Lose And Not Only Will You Be Subject To Sexual Harassment And Shame, But Creampie Raw Footage Punishment Rape As Well! ((Dolly Leigh; Riley Nixon)).mp4
 [SKHG-03] Heroine Excretion Torture Sailor Flare ((Aoi Yuki)) [EngSub].ts
@@ -1031,7 +1060,10 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [SSND-003] SSND-03 Super Maternal Big Breasts Lady  - Part B ((Haruna Hana)).mp4
 [SSND-003] Super Maternal Big Breasts Lady  - Part A ((Haruna Hana)).mp4
 [SSNI-081] Mini Skirt Idol Tour Refre Extreme Invisible Full Course Hashimoto Yes ((Arina Hashimoto)) [EngSub].mp4
+[SSNI-135] A Teacher Trainee A Cum Bucket Transformation Plan By Her Students To Give Her A Rough Sex Gang Bang Hanon Hinana ((Hihana Hanon)).mp4
+[SSNI-264] A Teacher Trainee Rough Sex Gang Bang Rape She Was Raped By All Of The Students In A Coercion Creampie Class Noa Mizuhara ((Narisawa Kisaki)).mp4
 [SSNI-290] Bombs Cock Girls Gang Raped By Sticky Kimo Warrior Group ((Rion)) [EngSub].mp4
+[SSNI-302] Her Pussy Gets Fucked and Fucked Again, Pounded Relentlessly with No End in Sight! There's No Escaping from this Gang Rape!! ((Hoshino Nami)).mp4
 [SSNI-474] A Beautiful Wife Whose Husband Married Her So He Could Fuck Her On A Daily Basis. The Story Of Divorce That Begins On Their Wedding Night ((Aoi Tsukasa)) [[EngSub]].mp4
 [SSNI-694] Big Tits Schoolgirl in Uniform Fucked In Total Bondage ((Nogi Hotaru)).mp4
 [SSNI-802] Poor Teacher - Trapped At School During A Storm, She Fucks Her Male Students Until The Weather Clears... ((Mikami Yua)) [[EngSub]].mp4
@@ -1144,6 +1176,7 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [TRE-99] Heroine Insult Vol. 99 Beautiful Saint Sei Warrior Sailor Priest Evil Tentacle Basket ((Tamaki Kurumi)) [EngSub].ts
 [TUE-115] Breast Milk Wife Obscene Recorded Video.mp4
 [TYAN-005] Track And Field Club Beautiful Girl Hunting Nagisa Hazu ((Hazumoto Nagisa)).mp4
+[TYOD-300] Nasty Sex Doll No. 1 Icharabu Obscenity IdolAkoromomaru'Uehara Ai ((Uehara Ai)).mp4
 [UMD-678] In My Aunt is Body Too Lazy Bodied Too Much Provocative ((Kaori; Enshiro Hitomi; Oshikawa Yuuri; Katou Ayano; Yamashiro Mizuho; Sasaki Aki; Kodama Rumi)).ts
 [UMD-746] Undercover Rumored Lymph Node Massage Clinic 3.mp4
 [UMSO-042] Ahh Such Pleasure... Once You Experience This, You Can Never Go Back!! We Develop The G-Spot Using A Horse-Sized Dildo And Ultra Rich Aphrodisiac Oils To See What Happens When We Force Women In.mp4
@@ -1162,6 +1195,9 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [URE-073] The day I fucked my Son - Exclusive - Mother-in-law's Pride ((Kinoshita Ririko)) [[EngSub]].mp4
 [URMC-005] My Older Sister Colossal Tits Ar So Nasty They Knocked Me Out In An Instant ((Yuri Oshikawa)).mp4
 [USBA-003] Aphrodisiac BDSM Gangbang - Bukkake - Pleasure Hell Prisoner ((Nishita Karina)).mp4
+[VAGU-231] For Her Beloved Fans... The Gravure Idol Who Turned Into A Fuck Doll - Beautiful Mannequin Wife Sidestory ((Kuriyama Ema)).mp4
+[VAGU-233] For My Beloved Husband... I Became A Mannequin - Beautiful Mannequin Wife Extra Edition ((Azuma Rin)).mp4
+[VAGU-236] For My Beloved Husband... I Became A Doll - Beautiful Mannequin Wife Side Story ((Takeuchi Natsuki)).mp4
 [VAGU-241] Wife Brainwashing NTR. Made Irritating Neighbor Into Sex Plaything With Brainwashing. Made Her Lust After Strange Man's Cock In Front of Husband ((Miura Eriko)).mp4
 [VAGU-247] Brainwashing NTR Nakadashi by hypnotism – I who turned a pissed off neighbor wife into a sex tiy in front of her husband – Mio Kimishima ((Kimijima Mio)).mp4
 [VEMA-131] SEXY Lingerie Visit Salesperson Cum Shot Sales Technique Yuri Sugawa ((Oshikawa Yuuri)).mp4
@@ -1173,8 +1209,12 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [VRTM-189] There's This Village, Where The Law Says You Must Share Your Wife With Everyone... Every Year In September, In The City Of Oomata In Nag--- Prefecture, They Celebrate With Large Orgies Outdoors.mp4
 [VRTM-513] We Gave Aphrodisiacs And Pills To A Cabin Attendant With A Big Ass In Black Pantyhose Then We Tied Her Up While She Was Her With A Vibrator.mp4
 [WAAA-163] Incontinence t_rture 143cm cheeky girl - Live confinement Lori Wareme cum Kudo Lara ((Kudou Rara)).mp4
+[WANZ-068] Real Female Teacher G-------g R--e ((Sunohara Miki)).mp4
 [WANZ-146] Drawing Model Real Love Rei Getting Wet To The Line Of Sight ((Rei Aimi)) [EngSub].ts
 [WANZ-225] Young Married Teacher Gets Taken Home by Student - 3 Days Of Torture And Rape To Turn This Beautiful Wife Into A Slave Pet ((Okita Anri)) [[EngSub]].mp4
+[WANZ-307] New Female Teacher Brutal Ruthless Nakadashi Rape Gang Rape ((Asakura Yuu)).mp4
+[WANZ-317] Young married woman teacher whose home was taken over by a student -Kamihata Ichika ((Kamihata Ichika)).mp4
+[WANZ-343] Young Wife Teacher whose house was taken over by a student - Beautiful Wife Becomes a Slave Pet - 3 Days of Rape and Humiliation Drama ((Iioka Kanako)).mp4
 [WANZ-872] Time Is Stopped Women's Toilet Forced Urination Pies Re Pu Panic Injection ((Arisaka Miyuki; Misaki Azusa; Hazuki Momo)).mp4
 [WKD-044] Provocation Interview Room ((Inaba Ruka)).mp4
 [WSP-161] A Heavy Blow To The Huge Breasts ((Saijou Ruri; Yoshikawa Aimi; Mizuno Asahi; Oshikawa Yuuri; Chino Azumi; Saegusa Chitose)).ts
@@ -1184,14 +1224,17 @@ var file = `[AARM-003] Erotic Management Strategy Of President And Vice Presiden
 [XRL-033] Nipple Blame Collection Captive And Punished Chikubi Sensitive Erection Nipple Persistently Squeezed And Nipple Iki Over And Over Again.mp4
 [XRW-287] Want To Try To Mess The Nipple Of School Girls!JK Reflation Back Option.ts
 [XRW-395] A nipple spokesperson seeking the ideal nipple sucks and compares the nipple from one to the next ((Hoshizora Moa; Hayakawa Mizuki; Hayama Miku; Kagura Aine; Kasumi Aika)).mp4
+[XRW-519] Petite, Doll-Like Girls No More Than 150 cm Tall In School Swim Suits.mp4
 [XRW-913-A] Teasing Group Sex Fuck 4 Hour Highlights - Part A.mp4
 [XRW-948-A] Tied Up And Relentlessly Making Her Cum 4 Hours Beautiful Girls 5 People Throat Fuck And Uterine Destruction ((Azusa Misaki; China Chikusa; Yuri Asada; Kana Manaka; Ann Sakura)).mp4
 [XRW-948-B] Tied Up And Relentlessly Making Her Cum 4 Hours Beautiful Girls 5 People Throat Fuck And Uterine Destruction ((Azusa Misaki; China Chikusa; Yuri Asada; Kana Manaka; Ann Sakura)).mp4
+[XRW-966] Sex Doll Just For Me - Mai Takeda ((Take Tamai)).mp4
 [XTRM-004] Intense Throw Up Discipline Masochistic Girl Has The Back Of Her Throat Used As A Toilet ((Kaori Shimozono)).mp4
 [XVSR-643] Getting Fucked At A Married Couple’s Home Every Day By An Unpleasant Guy ((Mogami Ichihana)).mp4
 [YMDD-198] She S Addicted To Crazy Out-Of-Control Dirty Old Man Cocks Azusa Misaki.mp4
 [YMSR-024] Exhibitionist Training Desire Wife S Lusty Masochism At 50 5 Hours.mp4
 [YRH-029] Naked school girls ((Shiina Hikaru; Hanekawa Runa; Fujishima Yui; Serizawa Tsumugi; Ayashiro Yurina; Ogura Yuki; Oosaki Mika; Aishiro Sayaka; Aoi Koharu; Omomo Risa; Kubota Airi; Aihara Yua; Mash.ts
+[YST-242] My Mom's New Husband Has Turned Me Into HisRound The Clock Rough Sex Doll Himari Kinoshita ((Hanazawa Himari)).mp4
 [YVG-033] The Heartbeat Of Men Who Play With The Immobile Beauty And Immerse Themselves In Pleasure Restraint Rape Vol 2.ts
 [ZIZG-004] Taimanin Murasaki ((Arimura Chika; Rona Ro-zu; Sakurai Ayu; Uehara Ai)) [[EngSub]].mp4
 [ZIZG-014] Taimanin Asagi ANOTHER STORY Restraint Torture Acme  That Does Not End ((Uehara Ai)) [EngSub].ts
