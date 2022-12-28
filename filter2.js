@@ -43,4 +43,57 @@ list += `\
 [PRED-159] Dirty Step Father Brainwashes His Step Daughters We're Happy To Be Our New Father's Sex Toys. Eimi Fukuda ((Fukada Eimi; Hoshina Ai)) [[EngSub]].mp4
 [ABP-950] Extreme Situations #18 - Perfect POV! - Presents 4 Super Sexy Situations ((Suzumori Remu)) [[EngSub]].mp4
 `;
+
+list += `\
+[JUL-029] Masochistic Family Wife - Maki Hojo ((Houjou Maki)) [[EngSub]].mp4
+[IPX-714] My Slut Teacher Messed With My Cherry Boy Cock, And I Could Never Ever Forget The Experience.. ((Aizawa Minami)) [[EngSub]].mp4
+[IPX-555] My Horrible Father-In-Law Who I Wish Death Upon Made Me Cum So Many Times ((Akari Tsumugi; Kobayashi Maiko)) [[EngSub]].mp4
+[IPX-439] On A Business Trip To A Hot Spring Resort, She Has To Share A Room With The Boss She Hates... And He Fucks Her And Makes Her Cum Again And Again ((Momonogi Kana)) [[EngSub]].mp4
+[PKPT-010] Actress x Cosplay 5 Cosplay Live Fucking ((Haruna Hana)).mp4
+[GVH-429] A relative's aunt's big tits were so erotic that I asked her to give it to me, and she said, Just once, okay After that, every time I got an erection, we fucked each other.. ((Haruna Hana)).mp4
+[CEMD-190] Only Lewd Actresses! Sexual Desire Runs Wild!,, Akari Niimura ((Aramura Akari; Haruna Hana; Mochizuki Ayaka)).mp4
+[CEMD-267] Lewd Lascivious Woman with the Power to Stop Time 5 ((Haruna Hana)).mp4
+[NKKD-263] Middle Management NTR - Big Tits Wife Drowned in Big Cock of Boss and Subordinate from Above and Below ((Haruna Hana)).mp4
+[CEMD-105] Iori Nanase - Lesbian Ban Lifted! X Akari Niimura - Three Big-breasted Beauties Intertwine In Lewd Lesbian Sex ((Aramura Akari; Haruna Hana; Nanase Iori)).mp4
+[NKKD-235] The Wife Of A Poor And Innocent Woman With Big Tits Who Was Mangled By Her Apartment Landlord's Huge Cock ((Haruna Hana)).mp4
+[CESD-500] Outside Nude Torture For A Big Tits, Bubble Butt Bondage Slut ((Haruna Hana)).mp4
+[VOSS-073] I Heard Japanese Chess Can Help Develop Your Brain I'm Studying For My Entrance Exams But My Grades Haven't Been Improving, So My Grandpa Recommended That I Take A Japanese Chess Class Were A Big .mp4
+[JBD-202] I Was Tied Up By My My Neighbor ((Haruna Hana)).mp4
+[RBD-819] Feast of the She-Devils - Lovers'Concerto ((Haruna Hana)).mp4
+[SOE-634] Complete Domination of a Masochistic Secretary ((Haruna Hana)).mp4
+[GMBM-002] Fantasy Explosion I Don't Know Where To Look When My Step Sister Walks Around In Front Of Me Naked ((Haruna Hana)).mp4
+[SNIS-223] Keep On Squeezing Titties - Non-Stop Breast Rubbing 150 Minutes ((Haruna Hana)).mp4
+[RCTD-132] Stunning In Micro Bikini! Big Tits 20 Girls! Swimming Competition 2018 ((Arioka Miu; Haruna Hana; Kimijima Mio; Komine Hinata; Mihara Honoka; Mitoma Umi; Rian Natsu; Sakura Chinami; Takeda Makoto; Yui Hatano.mp4
+[GMEM-081] Confinement! Torture! Screaming! Climax! Forceful Climax Screaming Training - Complete Downed Elite Narcotics Agent - Humiliation Frenzy Hell - Yuri Usukawa ((Oshikawa Yuuri)).mp4
+[BKD-293] Mother and son Copulation - Yuri Usukawa ((Oshikawa Yuuri)).mp4
+[BST-026] Travel Agent Yuri Usukawa Sales Section Manager - Business meeting with a virgin ((Oshikawa Yuuri)).mp4
+[HJMO-515] Rumored nipple reverse bunny big tits mom - Lasciviously pinched and molested - Reverse threesome harem experience ((Arioka Miu; Oshikawa Yuuri)).mp4
+[VENX-152] Bathing sex with a very big-breasted mother-in-law Yuri Usukawa ((Oshikawa Yuuri)).mp4
+[HDKA-268] Naked Housewife Yuri Hikawa (31), Living In Ota Ward ((Oshikawa Yuuri)).mp4
+[NHDTB-142] Double Molester Action From Top And The Bottom A Woman Was Assaulted By 2 Molester Teachers And Had Her Nipples And Her Pussy Tweaked At The Same Time As She Agonized In Ecstasy ((Hoshina Ai; Kur.mp4
+[NHDTB-167] Dissection of a female body - A woman who is thoroughly investigated and can't refuse ((Kawasaki Arisa; Nagai Mihina; Nonomiya Misato; Oshikawa Yuuri; Suzuki Satomi)).mp4
+[JUFE-221] Twin Sluts - Video Record Of Busty Young Wives Trained Up To Be Cum Dumpsters Yuri Oshikawa ((Oshikawa Yuuri; Tsujii Honoka)).mp4
+[VEC-378] Cuckold Titty Fucked NTR My Wife Is Proud Of Her Big Tits But Now She's Getting Them Fondled By My Friend And Getting Creampie Fucked Yuri Oshikawa ((Oshikawa Yuuri)).mp4
+[BBAN-375] A Caste Female Teacher Spree In Dirty Words Licking Saliva lesbian Pleasure Training Sato Momoka ((Misaki Azusa; Narita Tsumugi; Satou Nonoka)).mp4
+[BBAN-374] Female teacher Lesbian female - Maso training ((Misaki Azusa; Seina Arisa)).mp4
+[BLB-016] Giant Black Cock Fucks Japanese Beauty. This Young Wife Who Always Cheats! Hard Fucking Group Sex 4P. ((Misaki Azusa)).mp4
+[RCTD-420] Skin Collector - Kokuhi-san ((Misaki Azusa; Nagano Sayaka; Tsukishima Naru)).mp4
+[HUNTA-881] Hey Big Stepsister, Please Stop...I'm Sorry... I Was Very Close With My Big Stepsister, But When The Bullies Ordered To Do It, She Couldn't Disobey, And She Fucked Me ((Fukada Yuuri; Misaki Azusa; Mi.mp4
+[SDDE-633] A Beauty Salon Where Sex Is Part Of The Service - Continous Intercourse Estethician ((Katou Ayano; Misaki Azusa; Yoshioka Asumi)).mp4
+[SORA-256] Barely Legal Azusa Was Won Mixed Fluids ((Misaki Azusa)).mp4
+[HUNTA-734] These Girls From Class Were Using My Place As Their Hangout, So I Fed Them Aphrodisiacs And Gave Them All A G-------ging Good Creampie Time!! After School Lets Out, All The Girls From Class Take.mp4
+[XRW-821] Shock Ecstasy ((Misaki Azusa)).mp4
+[XRW-730] The Daily Life Of A Bondage Master REC Schoolgirl S&M Lust Edition ((Misaki Azusa)).mp4
+[JBD-245] Tricked And Bound, But.. ((Misaki Azusa)).mp4
+[JUFE-037] A Life Of Celibacy Has Made Their Lust Explode- She Imprisons A Man! The Reverse Sandwich Sex With 2 Perverted Women. ((Hinata Mio; Misaki Azusa)).mp4
+[HUNBL-031] He Seemed To Be A Handsome Young Man, But He Turned Out To Be A Immoral Fuck, But She Had Fallen In Love With Him, And In Order To Score Points With Him, This Prim And Proper Sch--lgirl Let The Other.mp4
+[JUY-801] Sweaty Gym Cuckolding My Wife Started Coming To The Gym Where I Work But Before I Knew It, My Insatiable Senpai Was Fucking Her ((Misaki Azusa)).mp4
+`;
+
+/*
+list += `\
+
+`;
+
+*/
 // -=-=-=-=-=  End List  =-=-=-=-=-
