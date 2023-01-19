@@ -90,6 +90,40 @@ list += `\
 [JUY-801] Sweaty Gym Cuckolding My Wife Started Coming To The Gym Where I Work But Before I Knew It, My Insatiable Senpai Was Fucking Her ((Misaki Azusa)).mp4
 `;
 
+
+list += `\
+[ACZD-046] Adolescent Medical Record Rara Kudo ((Kudou Rara)).mp4
+[BBAN-374] Female teacher Lesbian female - Maso training ((Misaki Azusa; Seina Arisa)).mp4
+[BBAN-375] A Caste Female Teacher Spree In Dirty Words Licking Saliva lesbian Pleasure Training Sato Momoka ((Misaki Azusa; Narita Tsumugi; Satou Nonoka)).mp4
+[BLB-016] Giant Black Cock Fucks Japanese Beauty. This Young Wife Who Always Cheats! Hard Fucking Group Sex 4P. ((Misaki Azusa)).mp4
+[GVH-486] Masochistic Perverted Girl with Uncontrollable Masochistic Habits - Lara Masochistic Girl ((Kudou Rara)).mp4
+[HUNBL-031] He Seemed To Be A Handsome Young Man, But He Turned Out To Be A Immoral Fuck, But She Had Fallen In Love With Him, And In Order To Score Points With Him, This Prim And Proper Sch--lgirl Let The Other.mp4
+[HUNTA-734] These Girls From Class Were Using My Place As Their Hangout, So I Fed Them Aphrodisiacs And Gave Them All A G-------ging Good Creampie Time!! After School Lets Out, All The Girls From Class Take.mp4
+[HUNTA-881] Hey Big Stepsister, Please Stop...I'm Sorry... I Was Very Close With My Big Stepsister, But When The Bullies Ordered To Do It, She Couldn't Disobey, And She Fucked Me ((Fukada Yuuri; Misaki Azusa; Mi.mp4
+[IBW-861] This Gang Followed A Latch Key S-----t Home And Fucked Her Brains Out ((Kudou Rara)).mp4
+[IBW-901] Sold by Family Today - Beautiful Girl in Sexual Protection - Lara Kudo ((Kudou Rara)).mp4
+[IENF-229] My Boobs Are My Brother's 2Sister is concerned about her boobs which are growing bigger and bigger. I can't help but notice her tits as they hit me ((Kudou Rara; Usami Rena)).mp4
+[JBD-245] Tricked And Bound, But.. ((Misaki Azusa)).mp4
+[JUFE-037] A Life Of Celibacy Has Made Their Lust Explode- She Imprisons A Man! The Reverse Sandwich Sex With 2 Perverted Women. ((Hinata Mio; Misaki Azusa)).mp4
+[JUY-801] Sweaty Gym Cuckolding My Wife Started Coming To The Gym Where I Work But Before I Knew It, My Insatiable Senpai Was Fucking Her ((Misaki Azusa)).mp4
+[KTRA-433] Niece Training Diary 6 Lara Kudo ((Kudou Rara)).mp4
+[MIAA-738] A Young girl clutches 3000 yen as a New Year's gift and offers her young pussy in exchange for her mother's debt... Lara Kudo ((Kudou Rara)).mp4
+[MUDR-199] Torture bondage experiment Euphoria on the cross Lara Kudo ((Kudou Rara)).mp4
+[NHDTB-660] Ubuko Fixed Health Examination exploration until sensitiveness of pussy gets broken ((Kudou Rara; Usami Rena; Yukino Eru)).mp4
+[NHDTB-664] Adolescent girl molestation - Naive Girls get a peek and get friendly ((Hazuki Yuna; Kanon Urara; Kudou Rara; Maeno Nana)).mp4
+[RBK-029] Breaking In the High Schoogirl for Sad Play. Rara Kudo ((Kudou Rara)).mp4
+[RCTD-420] Skin Collector - Kokuhi-san ((Misaki Azusa; Nagano Sayaka; Tsukishima Naru)).mp4
+[SCR-297] Indiscriminately Aiming at Young Girls Devilish creampie video ((Kudou Rara)).mp4
+[SDDE-633] A Beauty Salon Where Sex Is Part Of The Service - Continous Intercourse Estethician ((Katou Ayano; Misaki Azusa; Yoshioka Asumi)).mp4
+[SDJS-167] SOD Sexology Lab - Female employee with a reputation for beautiful tits... Will the nipples cum so much that they feel more than the clitoris and pussy when they are blamed ((Honda Satomi; Konno M.mp4
+[SORA-256] Barely Legal Azusa Was Won Mixed Fluids ((Misaki Azusa)).mp4
+[SUJI-154] Tiny Shaved Pussy Shame - This Gang Loves Rough Sex And They Like It Filthy - Lala 142cm Tall Lala Kudo ((Kudou Rara)).mp4
+[SVDVD-928] Shame! Puberty growth condition examination meeting 3 - measurement of healthy children and secondary sexual characteristics and investigation of the actual state of sexual intercourse ((Kudou Ra.mp4
+[T-28622] Sensei, I Want to Have a Baby - Insolent Promise to the Student Who Seduces Me - Lara Kudo ((Kudou Rara)).mp4
+[XRW-730] The Daily Life Of A Bondage Master REC Schoolgirl S&M Lust Edition ((Misaki Azusa)).mp4
+[XRW-821] Shock Ecstasy ((Misaki Azusa)).mp4
+`;
+
 /*
 list += `\
 
