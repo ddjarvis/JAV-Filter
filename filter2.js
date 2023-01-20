@@ -124,6 +124,25 @@ list += `\
 [XRW-821] Shock Ecstasy ((Misaki Azusa)).mp4
 `;
 
+list += `\
+[AVOP-382] Crack Service - Maid With Shaved Pussy Special ((Atomi Shuri; Azuki; Miyazawa Yukari; Mukai Ai; Tsubomi; Yamakawa Yuna)) [[EngSub]].mp4
+[DV-1512] Rape Madness ((Asahina Akari)) [[EngSub]].mp4
+[HBAD-264] Shibuya Miki Fiance Of My Nante Is Netora To Brother-in-law ... No Way Sister Was Attacked By Her Husband Of Sister ((Shibuya Miki)) [[EngSub]].mp4
+[HMN-191] My Two Sister-in-law Who Are Female Holes Are Secretly Vaginally seeded by our Unequaled Father Behind The Scenes ((Hanakari Mai; Yokomiya Nanami)) [[EngSub]].mp4
+[IPX-873] Humiliating rape with a big dick by a sick boss who makes her cum over and over again cum marked by a perverted boss ((Aizawa Minami)) [[EngSub]].mp4
+[IPZ-405] Teachers Too Beautiful! They Need A Good Rape - Rora Misaki ((Takizawa Lora)) [[EngSub]].mp4
+[IPZ-793] Retaliation Gangbang - Mizuki Leia To The Beautiful Woman President - Arrogant Woman Who Is The Fallen ((Mizuki Ren)) [[EngSub]].mp4
+[JUFD-564] My pet is a big-tits lawyer, - Sensitive breast sobs, in-court training - Kaho Shibuya ((Shibuya Kaho)) [[EngSub]].mp4
+[JUY-152] My Husband Doesn't Know - My Lewd Desires and Secrets ((Matsuyuki Kanae)) [[EngSub]].mp4
+[MVSD-511] Beautiful Female investigator - Falling into Aphrodisiac Porn! Impregnation! Rimming! Pleasure Torture! Lewd Conspiracy Aphrodisiac Syndicate ((Mitake Yuuna)) [[EngSub]].mp4
+[PPPD-335] Busty Female Teacher Takes A Creampie Gang Bang JULIA ((Julia)) [[EngSub]].mp4
+[PPPE-022] Possessed a Big-Tits girl Working At The Convenience Store! Things Get Exciting When A Reckless Coworker At A Part-time Jobs Pulls Some Pranks (Lol) ((Yuzuriha Karen)) [[EngSub]].mp4
+[RCTD-039] Womanized Skin - Transformation into the opposite sex by wearing her skin ((Haruno Sakura; Kano Hana; Kawagoe Yui; Nonomiya Misato)) [[EngSub]].mp4
+[SNIS-289] Woman De M Metamorphosis School Girls Ed Pervert Desire ((Aizawa Jun)) [[EngSub]].mp4
+[SOE-312] Rape X Minimal Mosaic Wife Fucked In Front of Her Husband ((Kirihara Erika)) [[EngSub]].mp4
+[SOE-339] Sora Aoi Young Wife Was Raped In Front Of Husband ((Aoi Sora)) [[EngSub]].mp4
+`;
+
 /*
 list += `\
 
