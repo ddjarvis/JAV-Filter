@@ -219,7 +219,25 @@ list += `\
 [URE-035] Mother's Day And Daughter's Day A Beautiful Mother And Daughter Cannot Be Saved From Impregnation The Live-Action Adaptation Of The Comic! ((Fukiishi Rena; Haniu Miko)) [[EngSub]].mp4
 `;
 
+list += `\
+[BLK-363] Whenever I Do Something Lewd, My Little Sister kills me with her eyes but she still let's Me Fuck Her Anyway ((Kawana Minori)) [[EngSub]].mp4
+[DVDES-831] Not Fit to Be a Mother 2 ((Hasumi Kurea)) [[EngSub]].mp4
+[JUX-800] The Wife Of A Very Masochistic Family Yuko Shiraki ((Shiraki Yuuko)) [[EngSub]].ts
+[KTKL-007] Meet Our Beloved Daughter. Because We Can't Make A Living With Her Doing Sexy Costume Non-Nude Erotica, We'll Put Her In An AV Instead. By DQN Parents ((Yazawa Mimi)) [[EngSub]].mp4
+[MIMK-016] Crimson -MOODYZ Special Collaboration Event, Idol Puppets Give Out Orders On Your Smartphone The Girl Who Must Obey ((Okita Anri)) [[EngSub]].mp4
+[MIMK-043] Girls Cum So Hard From Their Massage That They Can't Make A Sound ((Tia)) [[EngSub]].mp4
+[MUDR-010] Molesting Is Never Okay. Complete Edition ((Suzuki Koharu)) [[EngSub]].mp4
+[NHDTA-649] We Coerce Very Sensitive Lolita-Esque Schoolgirls Who Are Waiting for Their Moms at the Hospital to Have Sex With Us While Flashing Peace Signs, Doing Whatever We Say ((Abeno Miku; Chisei Haruka; Kanata Iori)) [[EngSub]].mp4
+[RBD-706] Cage of Lust-Beasts ((Natsume Iroha)) [[EngSub]].ts
+[SDMU-942] Watch Her Get Bullied Every Day For A Month - Cum Swallowing, Cum Facials, Golden Showers And Her First Ever Creampie... An Older Guy Teaches Her Everything About Rough Sex Over 30 Days Of Relentless P----hment ((Arisu Ruru)) [[EngSub]].mp4
+[URE-030] The Long-Awaited Live-Action Adaptation Of Hana Hook!! The Vengeful Harem Training Project Of A Gloomy Boy. Urekomi's 3-Year Anniversary Title ((Nishiguchi Arare; Sawamura Reiko; Shinoda Ayumi; Shouda Chisato)) [[EngSub]].mp4
+[XVSR-060] Holy Mother, Please ((Ayano Nana)) [[EngSub]].mp4
+[ZIZG-001] Taimanin Yukikaze ((Natsume Yuuki; Satou Haruki; Shiina Yuna)) [[EngSub]].mp4
+[ZUKO-098] My Good-Girl Little Sisters Got Corrupted By A Slutty Relative Into Making Babies With Me ((Aika; Atomi Shuri; Hayakawa Mizuki; Hirose Umi; Miyazaki Aya)) [[EngSub]].mp4
+`;
+
 /*
+
 list += `\
 
 `;
