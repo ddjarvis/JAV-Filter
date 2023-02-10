@@ -221,16 +221,36 @@ list += `\
 
 list += `\
 [BLK-363] Whenever I Do Something Lewd, My Little Sister kills me with her eyes but she still let's Me Fuck Her Anyway ((Kawana Minori)) [[EngSub]].mp4
+[DASD-376] This Big Tits Housewife Who Can't Stop Loving Is Being Deceived By The Company President In NTR Baby Making Sex ((Meguri)) [[EngSub]].mp4
 [DVDES-831] Not Fit to Be a Mother 2 ((Hasumi Kurea)) [[EngSub]].mp4
+[IBW-600Z] Obscene Footage Of Barely Legal Action At The Apartment Complex ((Haniu Miko; Iroha Meru; Moriho Sana; Nanae Koko)) [[EngSub]].mp4
+[JUC-707] Inventories Love Shyness Banquet Pink Ass Companion Work We Ashamed Of Married ((Aida Nana)) [[EngSub]].mp4
 [JUX-800] The Wife Of A Very Masochistic Family Yuko Shiraki ((Shiraki Yuuko)) [[EngSub]].ts
 [KTKL-007] Meet Our Beloved Daughter. Because We Can't Make A Living With Her Doing Sexy Costume Non-Nude Erotica, We'll Put Her In An AV Instead. By DQN Parents ((Yazawa Mimi)) [[EngSub]].mp4
+[MIAE-275] It's Practically Torture ... I Have To Sleep Between Busty Defenseless Sisters That I Absolutely Cannot Touch ((Kimijima Mio; Takarada Monami)) [[EngSub]].mp4
+[MIDE-533] The Gravure Idol Victimized By Molesters - Shoko Takahashis Shame, Embarrassment, and Unwanted Climax ((Takahashi Shouko)) [[EngSub]].ts
 [MIMK-016] Crimson -MOODYZ Special Collaboration Event, Idol Puppets Give Out Orders On Your Smartphone The Girl Who Must Obey ((Okita Anri)) [[EngSub]].mp4
+[MIMK-040] The World Of Reversed Virtue - AIKA, Nanase Otoha ((Aika; Hazuki Nanase)) [[EngSub]].mp4
 [MIMK-043] Girls Cum So Hard From Their Massage That They Can't Make A Sound ((Tia)) [[EngSub]].mp4
 [MUDR-010] Molesting Is Never Okay. Complete Edition ((Suzuki Koharu)) [[EngSub]].mp4
+[NDRA-016] Result Fujimoto Murasakihime That My Uchi Of Gal Daughter-in-law NTR Otamen Is We Got Married A Black Gal That Does Not Fit In Character ((Fujimoto Shion)) [[EngSub]].mp4
+[NDRA-018] We Have Engaged In A Small Massage Shop In The Husband And Wife In A Certain City Kanto, But ... The Wife Of Novice Chiropractor I Have Cuckold Crazy Been Appointed To Lewd Hot Spring Cure Guests Of I.mp4
 [NHDTA-649] We Coerce Very Sensitive Lolita-Esque Schoolgirls Who Are Waiting for Their Moms at the Hospital to Have Sex With Us While Flashing Peace Signs, Doing Whatever We Say ((Abeno Miku; Chisei Haruka; Kanata Iori)) [[EngSub]].mp4
+[PPPD-291] Nude Big Tits Maid ((Hitomi Tanaka)) [[EngSub]].mp4
+[PPPD-459] Busty Shotacon Uses Her Massive Boobs To Seduce Little Boys And Fucks Them! ((Hitomi)) [[EngSub]].mp4
 [RBD-706] Cage of Lust-Beasts ((Natsume Iroha)) [[EngSub]].ts
+[RBD-722] Terminal Station ((Natsume Iroha)) [[EngSub]].mp4
+[RCTD-021] Possessed Werewolf Game - Body Jack Mystery ((Aoi Ichigo; Azuki; Kagura Aine; Miyazawa Yukari; Shino Megumi; Yoshikawa Aimi)) [[EngSub]].mp4
+[SACE-051] Risa Kasumi Pet Teacher Woman creamPies ((Kasumi Risa)) [[EngSub]].mp4
+[SDMT-201] The Exchange Student Was Displaying His Cock And All The Girls In Class Didn't Know Where To Look ((Manabe Sachika; Takarabe Yuki; Takigawa Eri)) [[EngSub]].ts
+[SDMT-584] Public Sperm Toilet Slut 2 Double Hole Simultaneous Creampies Special ((Marika; Mizusawa Maki; Shiina Aya)) [[EngSub]].ts
 [SDMU-942] Watch Her Get Bullied Every Day For A Month - Cum Swallowing, Cum Facials, Golden Showers And Her First Ever Creampie... An Older Guy Teaches Her Everything About Rough Sex Over 30 Days Of Relentless P----hment ((Arisu Ruru)) [[EngSub]].mp4
+[SERO-0132] Country Entry Examination - College Student Gets a Strip Search Haruki Sato ((Satou Haruki)) [[EngSub]].mp4
+[SNIS-381] Forced To Be An Underwear Model.. ((Asuka Kirara)) [[EngSub]].mp4
+[SNIS-511] The Vaginal Portion Of Cervix Has Been Developed From That Day ((Ono Yuuko (AOI))) [[EngSub]].mp4
+[URE-028] Breaking In My Friend's Mother During The 3 Days Of My Entrance Exams, My Mother Became A Sex Toy For My Classmates - Yuko Shiraki ((Shiraki Yuuko)) [[EngSub]].mp4
 [URE-030] The Long-Awaited Live-Action Adaptation Of Hana Hook!! The Vengeful Harem Training Project Of A Gloomy Boy. Urekomi's 3-Year Anniversary Title ((Nishiguchi Arare; Sawamura Reiko; Shinoda Ayumi; Shouda Chisato)) [[EngSub]].mp4
+[URE-046] Married Teacher NTR Field Trip! Sho Nishino ((Nishino Shou)) [[EngSub]].mp4
 [XVSR-060] Holy Mother, Please ((Ayano Nana)) [[EngSub]].mp4
 [ZIZG-001] Taimanin Yukikaze ((Natsume Yuuki; Satou Haruki; Shiina Yuna)) [[EngSub]].mp4
 [ZUKO-098] My Good-Girl Little Sisters Got Corrupted By A Slutty Relative Into Making Babies With Me ((Aika; Atomi Shuri; Hayakawa Mizuki; Hirose Umi; Miyazaki Aya)) [[EngSub]].mp4
