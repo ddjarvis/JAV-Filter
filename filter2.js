@@ -306,6 +306,43 @@ list += `\
 [XRW-614] This Young Wife Is Unconsciously Getting Men Excited With Her Bra Slippage And That's Why She Got Raped - Yu Amaki ((Amaki Yuu)) [[EngSub]].mp4
 `;
 
+list += `\
+[ATID-399] Wife Swap, Filthy Couple Life ((Akari Tsumugi)) [[EngSub]].mp4
+[IORA-09] Those Filthy Extra Hairs, Fluttering In Breeze, Are Absolutely Not Unnecessary! This Beautiful Married Woman Is Lifting Her Arms Up In A Banzai Pose, Exposing Her Underarm Hairs!! ((Ozawa Suzune)).mp4
+[JUFD-861] Plump Shaved Little Sister gives Guys All They Want - Hikari Misumi ((Minazumi Hikari)) [[EngSub]].mp4
+[JUL-222] Tonight, I Might Be Made A Man. Yuko Shiraki ((Shiraki Yuuko)) [[EngSub]].mp4
+[MIAA-065] Restrained So She Can't Hide It- Humiliating Rape With Her Underarm Hair And Pubes Exposed ((Arisaka Miyuki)).mp4
+[MIAA-141] Underarm Sensuality Suffocating Armpit Ecstasy ((Abe Mikako)).mp4
+[NGOD-032] NTR My JK Wife Was Fucked By Her Teacher And Now She's A Horny Whore ((Shiina Sora)) [[EngSub]].mp4
+[NTRD-047] Sleeping In Ikumenpapa That Netorareze Postpartum Wife Came To Child Care Circle Tiger The Story Yuka Honjo ((Honjou Yuka)) [[EngSub]].mp4
+[RBD-968] She Was Placed In Confinement Until Her Underarm Hair Grew Back Kana Morisawa ((Iioka Kanako)).mp4
+[RCT-651] The Beautiful Wife Who Moved in Next Door Is a Dirty-Talking Busybody ((Kobayakawa Reiko; Yamamoto Miwako)).mp4
+[RCT-669] SEX Ai Oshima To Go Mad With The Big Penis Japan Too Cute ((Ooshima Kaoru; Uehara Ai)).mp4
+[RCT-798] Shion Fujimoto's Takes the World's Largest Black Cock with a Deep Creampie ((Fujimoto Shion)).mp4
+[RCT-816] Stories Of Quarreling Lesbian Battles ((Kitagawa Erika; Mizuno Asahi; Shinoda Yuu; Suzumiya Kotone)).mp4
+[RCTD-065] Incest Challenge with Tight Pants Big Ass Mom and Son in Torn Jeans ((Katou Ayano; Nakayama Haruna; Tsukimiya Koharu)).mp4
+[RCTD-096] She Was Working A Part-Time Job At A Food Stall Where She Had To Be Naked From The Waist Down And Get Fucked ((Hamasaki Mao; Kurata Mao)).mp4
+[RCTD-101] Female Transformation Skin 3 - Peeling Off His Skin And Transforming His Sex - The Skin Of An Idol.mp4
+[RCTD-121] The ultimate item, Glasses to make Ordinary Beaches Look Like Nudist Beaches ((Aragaki Chie; Hamasaki Mao; Mori Harura; Ninomiya Waka; Sasakura An; Shibuya Kaho; Tachibana Mary; Utada Ami; Yuzuki Marina)).mp4
+[RCTD-138] Summer Season Only OPEN Happy Ass Open Beer Garden ((Akari Tomoka; Sakuragi Yukine; Yamai Suzu; Yoshioka Saka)).mp4
+[RCTD-141] Just When I Managed To Become Female... The Transformation Isn't Complete And I'm A Hermaphrodite! 3 I Was A Completely Female Angel In White.. ((Hoshina Ai; Kimito Ayumi; Komine Hinata; Makino Reina)).mp4
+[RCTD-215] Showing off erections - Busty hot springs reporter ((Hayama Rin; Inoue Ayu; Momonaga Sarina)).mp4
+[RCTD-244] 1st Round A Lolita Dick Sucking Championship ((Fujii Ringo; Suzumiya Uruha)).mp4
+[RCTD-258] Deep Kiss Dental Clinic ((Kanae Renon; Yahiro Mai)).mp4
+[RCTD-259] TSF Forced Feminization Prison ((Akemi Kou; Kimura Narumi; Sakuma Emi)).mp4
+[RCTD-301] I Transformed Into A Woman, But My Lower Half Is A Hermaphrodite 5 - I'm A TSF Cosplayer ((Aino Rei; Arimura Nozomi; Mochida Shiori)).mp4
+[RCTD-409] I Want To bang RPG NPCs That repeat always the Same Lines! Rui Hizuki ((Hitzuki Rui)).mp4
+[RCTD-439] Aphrodisiacal Supplements - Dirty Pheromone For Women. Dietary Supplements ((Narita Tsumugi)).mp4
+[RCTD-470] The Target Is 2 Mama! Cute Sexual Harassment ((Oohara Rio; Tani Azusa)).mp4
+[RCTD-474] Super Wanton Lolita Pink Companion ((Ikuta Machi; Takase Rina)).mp4
+[RCTD-482] Fantasy Ultimate Evolution Series - Freezing Rape ((Hoshinaka Kokomi)).mp4
+[RCTD-495] I want to fuck all the NPC characters in this RPG because they only say the same lines! Part 2 ((Nosaki Mio; Takarada Arisa; Yuki Rino)).mp4
+[RCTD-500] Incest Werewolf Game - Who's Really Fucking Who.mp4
+[RCTD-503] We promise you the ultimate masturbation experience in front of the TV! Dirty Language Announcer 31 - Erotic Hole Rusbosu Descent - Yu Kawakami SP ((Kawakami Yuu)).mp4
+[RCTD-507] Gungy aphrodisiac esthetic salon 3 ((Nagano Tsukasa)).mp4
+[STAR-782] Me That's Gotten Smaller, With The Admired Wife ((Shiraishi Marina)) [[EngSub]].mp4
+`;
+
 /*
 
 list += `\
