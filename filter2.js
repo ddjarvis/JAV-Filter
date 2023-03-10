@@ -343,6 +343,34 @@ list += `\
 [STAR-782] Me That's Gotten Smaller, With The Admired Wife ((Shiraishi Marina)) [[EngSub]].mp4
 `;
 
+list += `\
+[AARM-039] Can You Take My Cum In Your Smooth Sweet-Smelling Armpit ((Hanai Shizuku; Kashiwagi Riko; Matsumiya Hisui; Miura Maina; Nonomiya Ran)).mp4
+[BAB-078] Man's Juice, Nipples and Glans are Illusion ((Yuki Rino)).mp4
+[BIJN-238] THE DOCUMENT - Climax SEX with full exposure of the instincts, masochistic guy's wife, erect nipples, pleasure incontinence training, Undan Shioawa ((Shiokawa Uni)).mp4
+[BOBB-364] Loose and fluffy marshmallow big tits I-cup! She plays with her soft white skin tits and nipples thoroughly! Boin Box ((Miyafuji Yumina)).mp4
+[DOKS-506] Eimi Fukada's Armpits ((Fukada Eimi)).mp4
+[DRPT-033] Huge breasted beauty who was restrained by a strap-on and developed both nipples at the same time on a crowded train and went into a sorry rut ((Minami Momo)).mp4
+[FSDSS-469] Pursuit Nipple Harassment - Schoolgirl, who had her nipples fucked all over the school ((Natsuki Rin)).mp4
+[FSET-531] Wife's younger sister who tortures me with her nipples while saying don't tell your sister ((Hanasaki Nodoka; Kanae Ruka; Uehara Ai)).mp4
+[FSET-549] The shape of nipples is clear! Me in a knit shirt with no bra and I have a hard-on ((Hoshino Hibiki; Ninomiya Nana; Ootsuka Ren; Uehara Ai)).mp4
+[FSET-554] Thoroughly Armpit ((Suzumiya Kotone; Uehara Ai)).mp4
+[HUNTB-414] The next-door neighbor is a college student with no bra and showing nipples! She came to greet us, but her clothes are super thin.mp4
+[IORA-09] Those Filthy Extra Hairs, Fluttering In Breeze, Are Absolutely Not Unnecessary! This Beautiful Married Woman Is Lifting Her Arms Up In A Banzai Pose, Exposing Her Underarm Hairs!! ((Ozawa Suzune)).mp4
+[MIAA-065] Restrained So She Can't Hide It- Humiliating Rape With Her Underarm Hair And Pubes Exposed ((Arisaka Miyuki)).mp4
+[MIAA-141] Underarm Sensuality Suffocating Armpit Ecstasy ((Abe Mikako)).mp4
+[MUKD-443] Beautiful girl in school uniform gets fucked while caressing her sensitive nipples all the time ((Mitani Akari)).mp4
+[NEO-738] Barely Legal Armpit Play - Kotone Fuyuai ((Fuyue Kotone)).mp4
+[NEO-742] Masochistic Woman Armpit Bullying ((Mizumori Sui)).mp4
+[NPS-237] Haruna's Lesbian Picking Up of Amateurs by Female Director Haruna 88 Friends, tongue-fucking, shell-fucking, armpit licking, electric pussy, observation of best friend's pussy, double-headed dildo, etc.. (.mp4
+[NXGS-001] Wife's mother, drawn by nipples when she eats.. ((Hiraoka Rieko; Kondou Ikumi; Makino Sayo; Morishita Mio)).mp4
+[OKV-003] Aoi Kururugi - God's dirty girl - How are her boobs wrapped in underwear, how are her nipples hidden, how is her pussy hair covered by panties, and what about her hairy pussy ((Kururigi Aoi)).mp4
+[RBD-968] She Was Placed In Confinement Until Her Underarm Hair Grew Back Kana Morisawa ((Iioka Kanako)).mp4
+[RBD-977] Held Until Her Armpit Hair Grows Back Maria Nagai ((Kashiwagi Kurumi)).mp4
+[RBD-986] She Was Placed In Confinement Until Her Armpit Hairs Grew Out Aoi Mukai ((Mukai Ai)).mp4
+[SCOP-329] A beautiful young wife living in the neighborhood shows me her nipples in full view through the gap between her breasts while wearing no bra ((Hazuki Nanase; Hoshino Hibiki; Kawamura Maya; Makihara Mana; .mp4
+[WANZ-283] Sister I love Your Armpits ((Minato Riku)).mp4
+`;
+
 /*
 
 list += `\
